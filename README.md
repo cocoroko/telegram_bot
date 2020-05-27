@@ -1,4 +1,4 @@
-# bot
+# bot by Eseniya Lushko
 
 накааааанецтаааа
 
